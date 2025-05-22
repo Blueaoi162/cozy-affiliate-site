@@ -1,1 +1,1 @@
-# cozy-affiliate-site
+# cozy-aesthetic-finds
